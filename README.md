@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LECS040725MBCDBFA4
+LECS040725MBCDBFA4
